@@ -1,0 +1,1 @@
+# terminalden_giri-
